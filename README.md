@@ -2,17 +2,28 @@
 
 **Shooting Woman**
 
-Hun ramte ikke.
-Hun ramte ham i foden.
-Pistolen gik i stykker.
-Han havde en skudsikkervest på.
-Der hoppede en kvinde ind foran manden.
-Han er et super menneske som ikke tager skade af at blive skudt.
-Han skød med sin egen pistol på samme tid så de 2 kugler ramte hinanden.
-På det tidspunkt kvinden skød faldt der en potteplante fra bygningen de stod ved og den faldt ned i kuglens bane og stoppede kuglen.
-I det i det nanosekund før han blev ramt af kuglen blev han forvandlet til en kaskelothval. Og da en kaskelothval er et meget stod pattedyr, tog den ikke særligstor skade og overlevede da den hurtigt blev transporteret til havet.
-Han døde ikke fordi den verdens berømte kirurg Dr. Stephen Strange var på gerningsstedet, og kunne operaer på han med det samme hvilket rede hans liv.
-Manden døde ikke da kvinden kun skød hvad hun troede var manden min i virkeligheden kun var et hologram af manden.
+Hun ramte ikke.  
+
+Hun ramte ham i foden.  
+
+Pistolen gik i stykker.  
+
+Han havde en skudsikkervest på.  
+
+Der hoppede en kvinde ind foran manden.  
+
+Han er et super menneske som ikke tager skade af at blive skudt.  
+
+Han skød med sin egen pistol på samme tid så de 2 kugler ramte hinanden.  
+
+På det tidspunkt kvinden skød faldt der en potteplante fra bygningen de stod ved og den faldt ned i kuglens bane og stoppede kuglen.  
+
+I det i det nanosekund før han blev ramt af kuglen blev han forvandlet til en kaskelothval. Og da en kaskelothval er et meget stod pattedyr, tog den ikke særligstor skade og overlevede da den hurtigt blev transporteret til havet.  
+
+Han døde ikke fordi den verdens berømte kirurg Dr. Stephen Strange var på gerningsstedet, og kunne operaer på han med det samme hvilket rede hans liv.  
+
+Manden døde ikke da kvinden kun skød hvad hun troede var manden min i virkeligheden kun var et hologram af manden.  
+
 
 **Alien**
 
